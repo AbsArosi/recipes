@@ -1,4 +1,4 @@
-# Family secret recipes
+# Arosi Family Secret Recipes
 
 Set of recipes as given by me grandma.
  
